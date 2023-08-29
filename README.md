@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @devanshiy
+👋 Hi, I’m @devanshiy 💁🏻‍♀️
 
 An avid explorer of analytics👩🏻‍💻 and analytical tools, with a curiosity for learning. 
  
